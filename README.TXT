@@ -1,0 +1,1 @@
+feet for a lamp
